@@ -1,0 +1,1 @@
+Referencies utilitzades: Claude
